@@ -9,7 +9,7 @@ You can find me on:
   
 [LinkedIn](https://www.linkedin.com/in/luke-cusato/) - [Email](mailto:lukecusato1@gmail.com) 
 
-📍 Pittsburgh, PA&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <img src="https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/160/twitter/259/airplane_2708-fe0f.png" width="30px" height="30px"> &nbsp;&nbsp; <img src="https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/160/twitter/259/airplane-arrival_1f6ec.png" width="30px" height="30px"> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;📍 Redmond, WA
+📍 Pittsburgh, PA&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🛫&nbsp;&nbsp;🛬&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;📍 Redmond, WA
   
 
 <hr>
