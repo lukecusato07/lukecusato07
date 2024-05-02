@@ -18,7 +18,7 @@ You can find me on:
 
 I'm currently studying Information Science and Math + Statistics at the University of Pittsburgh!
 
-### This summer, find me at the Microsoft headquarters in Redmond, WA, where I will be interning as a Microsoft New Technologist Intern. I'm excited to delve deep into software engineering and product management skills.
+### This summer, find me at the Microsoft headquarters in Redmond, WA, <small>where I will be interning as a Microsoft New Technologist Intern. I'm excited to delve deep into software engineering and product management skills.</small>
   
   <br>
   <br>
