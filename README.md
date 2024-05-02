@@ -9,7 +9,7 @@ You can find me on:
   
 [LinkedIn](https://www.linkedin.com/in/luke-cusato/) - [Email](mailto:lukecusato1@gmail.com) 
 
-📍 Pittsburgh, PA      ✈️  ✈️      📍 Redmond, WA
+📍 Pittsburgh, PA      🛫      🛬      📍 Redmond, WA
   
 
 <hr>
